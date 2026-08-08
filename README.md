@@ -4,3 +4,5 @@ Discover the perfect blend of comfort and minimalist fashion with Essentials clo
 https://essentialshoodie.co.nz/
 # Essentials Pants
 https://essentialshoodie.co.nz/essentials-pants/
+# Essentials Tracksuits
+https://essentialshoodie.co.nz/essentials-tracksuits/
