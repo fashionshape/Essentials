@@ -6,3 +6,5 @@ https://essentialshoodie.co.nz/
 https://essentialshoodie.co.nz/essentials-pants/
 # Essentials Tracksuits
 https://essentialshoodie.co.nz/essentials-tracksuits/
+# Essentials T-Shirts
+https://essentialshoodie.co.nz/essentials-t-shirts/
