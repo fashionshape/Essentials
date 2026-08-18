@@ -8,3 +8,5 @@ https://essentialshoodie.co.nz/essentials-pants/
 https://essentialshoodie.co.nz/essentials-tracksuits/
 # Essentials T-Shirts
 https://essentialshoodie.co.nz/essentials-t-shirts/
+# Essentials Hoodie
+https://essentialshoodie.co.nz/essentials-hoodies/
