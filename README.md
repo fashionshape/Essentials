@@ -12,5 +12,8 @@ https://essentialshoodie.co.nz/essentials-t-shirts/
 https://essentialshoodie.co.nz/essentials-hoodies
 # Beige Essentials Hoodie
 https://essentialshoodie.co.nz/beige-essentials-hoodie/
+# Black Essentials Hoodie
+https://essentialshoodie.co.nz/black-essentials-hoodie/
 # Medium
 https://medium.com/@links_50912/how-an-essentials-hoodie-became-a-streetwear-wardrobe-staple-55de8749d229
+
