@@ -24,4 +24,6 @@ https://medium.com/@links_50912/how-an-essentials-hoodie-became-a-streetwear-war
 https://hoodieessentials.blogspot.com/2026/09/essentials-t-shirt-for-modern-everyday
 # Tumblr
 https://www.tumblr.com/blog/essentials9
+# Pinterest
+https://www.pinterest.com/pin/1089026753684299243/
 
