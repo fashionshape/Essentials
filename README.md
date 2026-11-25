@@ -28,4 +28,6 @@ https://www.tumblr.com/blog/essentials9
 https://www.pinterest.com/pin/1089026753684299243/
 # Wordpress
 https://essentials23.wordpress.com/2026/10/01/essentials-t-shirt-for-everyday-streetwear/
+# Notion
+https://adorable-bicycle-a05.notion.site/Essential-Hoodie-A-Modern-Streetwear-Staple-for-Everyday-Comfort-34a58111d1f9800581b8e39b5f33b311
 
